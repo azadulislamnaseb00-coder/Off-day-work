@@ -1,2 +1,2 @@
 # Off-day-work
-My boss call me to work on my off day i said because i need money
+My boss call me to work on my day off i said because i need money
